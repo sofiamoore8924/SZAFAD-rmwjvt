@@ -1,0 +1,2 @@
+# SZAFAD-rmwjvt
+Batch created
